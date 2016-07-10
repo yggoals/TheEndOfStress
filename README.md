@@ -1,0 +1,3 @@
+Downloading Course Materials
+
+You will find multimedia links throughout most of the book, usually at the end of the chapters. These links go to specific audio files that guide you in using a tool from a particular chapter. On the final page of the book, you will find a list of all the audio files in one place and the link to the website where they are collected. There is also a link at the back of the book to sign-up for my newsletter for the latest breakthroughs in neuroscience and new stress-busting tools. You can also download the audio files, as well as worksheets, tools, and other materials related to this book at theendofstressbook.com.
